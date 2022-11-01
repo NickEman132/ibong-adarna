@@ -7,14 +7,14 @@ O, Virheng Ináng marikít
 
 Emperadora sa Langit,
 
-Tulúngan poʼ yaríng ísip
+Tulúngan poʻ yaríng ísip
 
 Matútong makapagsúlit.
 
 
 2
 
-Sa áwaʼ mo po't talagá
+Sa áwaʻ mo po't talagá
 
 Virheng waláng makapára,
 
